@@ -13,5 +13,5 @@
 - ⚡ Fun fact: I really like Japan Pop Culture
 
 
-![gif](https://user-images.githubusercontent.com/116632934/200198249-243efc3a-85d6-4109-8155-735857698d63.gif)
 
+![tenor](https://user-images.githubusercontent.com/116632934/200199278-84adf5ac-5d51-40db-9992-329ccf20cd5a.gif)
