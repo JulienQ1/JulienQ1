@@ -16,16 +16,6 @@
 
 ![tenor](https://user-images.githubusercontent.com/116632934/200199278-84adf5ac-5d51-40db-9992-329ccf20cd5a.gif)
 
-Fabuleux
-Ubuesque
-Katana
-Abominablement
-Sadique
-Excentrique
--
-Kit
-Unique
-Nominatif
 
 
 ![tenor (1)](https://user-images.githubusercontent.com/116632934/200199361-36b48230-e98c-41a6-8cdf-156c570a3ba2.gif)
