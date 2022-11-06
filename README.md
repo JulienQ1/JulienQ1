@@ -2,6 +2,9 @@
 
 
   ✨**JulienQ1/JulienQ1**    ✨ 
+  -
+  -
+https://www.linkedin.com/in/julien-quenneville-b0a2341b1/
 
 - 🔭 I’m currently working on scary Projekt i don't even understand yet.
 - 🌱 I’m currently learning Front end 
