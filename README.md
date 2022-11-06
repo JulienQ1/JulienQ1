@@ -11,6 +11,8 @@ Here are some ideas to get you started:
 - 🤔 I’m looking for help with Front end 
 - 💬 Ask me about Anime 
 - 📫 How to reach me: julienquenne@gmail.com
-- 😄 Pronouns: ...
+- 
 - ⚡ Fun fact: I really like Japan Pop Culture
+![image](https://user-images.githubusercontent.com/116632934/200198249-243efc3a-85d6-4109-8155-735857698d63.png)
+
 -->
