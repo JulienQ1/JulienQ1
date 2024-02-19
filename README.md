@@ -6,11 +6,11 @@
   -
 https://www.linkedin.com/in/julien-quenneville-b0a2341b1/
 
-- 🔭 I’m currently working on scary Projekt i don't even understand yet.
-- 🌱 I’m currently learning Front end 
+- 🔭 I’m currently working on cool Project.
+- 🌱 I’m currently learning Human interaction 
 - 👯 I’m looking to collaborate on promotional site
-- 🤔 I’m looking for help with Front end 
-- 💬 Ask me about Anime 
+- 🤔 I’m looking for help with human interaction technologies 
+- 💬 Ask me about human technologies 
 - 📫 How to reach me: julienquenne@gmail.com
 - btw i'm French and i can speak english
 - ⚡ Fun fact: I really like Japan Pop Culture
