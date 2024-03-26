@@ -8,7 +8,7 @@ https://www.linkedin.com/in/julien-quenneville-b0a2341b1/
 
 - 🔭 I’m currently working on cool Project.
 - 🌱 I’m currently learning Human interaction 
-- 👯 I’m looking to collaborate on promotional site
+- 👯 I’m looking to collaborate on cool project
 - 🤔 I’m looking for help with human interaction technologies 
 - 💬 Ask me about human technologies 
 - 📫 How to reach me: julienquenne@gmail.com
