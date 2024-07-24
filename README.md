@@ -2,8 +2,8 @@
 
 
   ✨**JulienQ1/JulienQ1**    ✨ 
-  -
-  -Master Creative Technologist
+  Currently in a
+ Master degree creative technology 
 https://www.linkedin.com/in/julien-quenneville-b0a2341b1/
 
 - 🔭 I’m currently working on cool Project.
