@@ -3,17 +3,18 @@
 
   ✨**JulienQ1/JulienQ1**    ✨ 
   -
-  -
+  -Master Creative Technologist
 https://www.linkedin.com/in/julien-quenneville-b0a2341b1/
 
 - 🔭 I’m currently working on cool Project.
-- 🌱 I’m currently learning Human interaction 
+- 🌱 I’m currently learning Human computer interaction 
 - 👯 I’m looking to collaborate on cool project
-- 🤔 I’m looking for help with human interaction technologies 
-- 💬 Ask me about human technologies 
+- 🤔 I’m looking for help with human computer interaction technologies 
+- 💬 Ask me about human computer interaction technologies/AI/Design
 - 📫 How to reach me: julienquenne@gmail.com
-- btw i'm French and i can speak english
-- ⚡ Fun fact: I really like Japan Pop Culture
+- btw i'm French and i can speak english and German
+- ⚡ Fun fact:
+I am : a manga reader/Anime watcher/ you can ask My anime List if you want to discuss about it
 
 
 
